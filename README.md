@@ -43,7 +43,7 @@
 
 ###
 🎓 **Data Analyst**  
-📊 **BSc in Business Management** (British University)  
+📊 **BSc in Business Management** (Swansea University)  
 🌍 **Trilingual** – Native-level in 3 languages  
 💼 Background in **Business, Operations & Strategy**
 
